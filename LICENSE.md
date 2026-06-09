@@ -1,4 +1,4 @@
-
+Experience catch and tame like never before with custom catch and tame Script, the #1 Script. Includes one-hit kill and no cooldown for unbeatable
 
 
 
